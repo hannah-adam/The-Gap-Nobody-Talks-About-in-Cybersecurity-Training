@@ -1,5 +1,7 @@
 # The-Gap-Nobody-Talks-About-in-Cybersecurity-Training
 
+<img width="754" height="424" alt="image" src="https://github.com/user-attachments/assets/b89b27da-4465-48e6-bd14-dc214353ad58" />
+
 **The Gap: Why Finding the Right Challenge Is Harder Than It Should Be**
 
 Article 2 of 3 — From Library to the Right Match
